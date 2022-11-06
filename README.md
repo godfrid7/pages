@@ -1,4 +1,4 @@
-# ![photo](https://wonder-day.com/among-us-png/) 
+# ![photo](https://wonder-day.com/wp-content/uploads/2020/10/wonder-day-among-us-png-29.png) 
 Good afternoon!
 My name is Ilya Shakhovtsov
 Studying on the Neitology course in the QA-50 group
